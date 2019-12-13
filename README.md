@@ -22,3 +22,5 @@ Un **gran poder** requiere _una_ gran *responsabilidad*
   * subitem
   
 ![EL BROMAS](https://los40es00.epimg.net/los40/imagenes/2019/10/17/cinetv/1571322913_720114_1571323251_noticia_normal.jpg)
+
+[Ver imagen](https://los40es00.epimg.net/los40/imagenes/2019/10/17/cinetv/1571322913_720114_1571323251_noticia_normal.jpg)
